@@ -10,3 +10,5 @@
 
 ### WHY I MADE THIS SH1T?
 IDK
+
+[Check this out](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
