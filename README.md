@@ -1,5 +1,5 @@
 # StatS220
-* What's up?
+*What's up?*
 
 ## WHO AM I?
  - X is the name.
