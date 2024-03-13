@@ -8,7 +8,7 @@
 1. Kick your ass.
 2. Smell your fear.
 
-### WHY I MADE THIS SH1T?
+### WHY I MADE THIS *?
 IDK
 
 [Check this out](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
